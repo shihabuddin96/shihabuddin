@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shihabuddin96
-- 👀 I’m interested in cars 
+- 👀 I’m interested in studying code
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me @shihabuddin96 on instagram or drop me a message
